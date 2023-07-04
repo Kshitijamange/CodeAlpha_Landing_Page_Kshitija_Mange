@@ -1,2 +1,0 @@
-# CodeAlpha_Landing_Page_Kshitija_Mange
-@CodeAlpha
